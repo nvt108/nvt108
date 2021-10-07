@@ -1,3 +1,3 @@
-# Hello, I'm TrungNV
+# Hello, I'm Trung Nguyen
 
 
